@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @BehmaramArman
 - 👀 I’m interested in Piano
-- 🌱 I’m currently learning about Piano
+- 🌱 I’m currently learning about Piano and work with it
 - 💞️ I’m looking to collaborate on My job and its oppurtunities
 - 📫 How to reach me in mail
 
