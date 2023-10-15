@@ -2,7 +2,7 @@
 - 👀 I’m interested in Piano
 - 🌱 I’m currently learning about Piano and work with it
 - 💞️ I’m looking to collaborate on My job and its oppurtunities
-- 📫 How to reach me in mail me or direct mess
+- 📫 How to reach me in mail me or direct message
 
 <!---
 BehmaramArman/BehmaramArman is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
